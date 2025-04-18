@@ -1,0 +1,1 @@
+**4chan has been hacked!** While it remains offline, a few of the /wcg/ anons have moved to a newly created [forum](https://forum.webcomicsgeneral.top) maintained by the admin of the [wiki](https://www.webcomicsgeneral.top). Please join us!
