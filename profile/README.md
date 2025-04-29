@@ -1,1 +1,1 @@
-**4chan has been hacked!** While it remains offline, a few of the /wcg/ anons have moved to a newly created [forum](https://forum.webcomicsgeneral.top) maintained by the admin of the [wiki](https://www.webcomicsgeneral.top). Please join us!
+Look for /wcg/ on the [catalog](https://boards.4chan.org/lgbt/catalog) to find the thread. Should 4chan be offline, we have a [backup forum](https://forum.webcomicsgeneral.top) maintained by the admin of the [wiki](https://www.webcomicsgeneral.top).
